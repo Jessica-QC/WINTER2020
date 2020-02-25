@@ -68,9 +68,9 @@ Lucy Zhao (12:30 pm)
 
 
 #### Team 8: Star Women
-Yixin Xu (3:30pm)
-Qing Chen (3:30pm)
-Fanru Zhao (3:30pm)
-Yijing Xiao (3:30pm)
-Yuexiang Luo (3:30pm)
+Yixin Xu (3:30pm) 
+Qing Chen (3:30pm) 
+Fanru Zhao (3:30pm) 
+Yijing Xiao (3:30pm) 
+Yuexiang Luo (3:30pm) 
 Amanda Njauw (3:30pm)
